@@ -6,4 +6,8 @@ sucedió y va a
 seguir sucediendo
 a lo largo de los
 sucesivos años
-décads, siglos
+décadas, siglos
+los libros hablan
+de los tulipanes
+de la compañia de 
+las indias, etc
