@@ -10,4 +10,6 @@ décadas, siglos
 los libros hablan
 de los tulipanes
 de la compañia de 
-las indias, etc
+las indias, de
+florencia, de 
+amsterdam
