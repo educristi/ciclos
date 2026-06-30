@@ -12,4 +12,8 @@ de los tulipanes
 de la compañia de 
 las indias, de
 florencia, de 
-amsterdam
+amsterdam, de la
+perdida del valor
+de la moneda
+de Roma, de España
+
