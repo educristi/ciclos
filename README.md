@@ -17,4 +17,5 @@ perdida del valor
 de la moneda
 de Roma, de España
 ciclos y ciclos
+1929 gran depresión
 
