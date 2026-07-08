@@ -20,4 +20,4 @@ ciclos y ciclos
 la gran depresión
 crisis del petroleo
 subas y bajas de intereses
-
+contracciones y expansiones
