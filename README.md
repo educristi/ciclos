@@ -21,3 +21,4 @@ la gran depresión
 crisis del petroleo
 subas y bajas de intereses
 contracciones y expansiones
+el pacto de Versalles
