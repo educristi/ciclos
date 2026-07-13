@@ -25,3 +25,4 @@ el pacto de Versalles
 desencadente de la
 hiper alemana y
 como consecuencia la
+segunda guerra mundial
