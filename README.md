@@ -27,3 +27,4 @@ hiper alemana y
 como consecuencia la
 segunda guerra mundial
 el plan Marshall
+fin del patron oro
