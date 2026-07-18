@@ -19,6 +19,7 @@ de Roma, de España
 ciclos y ciclos
 la gran depresión
 la confiscación y 
+nacionalización del oro
 crisis del petroleo
 subas y bajas de intereses
 contracciones y expansiones
