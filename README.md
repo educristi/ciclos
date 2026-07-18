@@ -18,6 +18,7 @@ de la moneda
 de Roma, de España
 ciclos y ciclos
 la gran depresión
+el fin del patron oro
 la confiscación y 
 nacionalización del oro
 crisis del petroleo
