@@ -26,7 +26,7 @@ crisis del petroleo
 subas y bajas de intereses
 contracciones y expansiones
 el pacto de Versalles
-desencadente de la
+la deuda circulante
 hiper alemana y
 como consecuencia la
 segunda guerra mundial
