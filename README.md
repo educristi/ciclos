@@ -27,6 +27,7 @@ subas y bajas de intereses
 contracciones y expansiones
 el pacto de Versalles
 la deuda circulante
+entre Usa, Alemania
 hiper alemana y
 como consecuencia la
 segunda guerra mundial
