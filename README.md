@@ -18,6 +18,7 @@ de la moneda
 de Roma, de España
 ciclos y ciclos
 la primera guerra
+la creación del impuesto
 el pacto de Versalles
 la deuda circulante
 entre Usa, Alemania
