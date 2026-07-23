@@ -17,14 +17,7 @@ perdida del valor
 de la moneda
 de Roma, de España
 ciclos y ciclos
-la gran depresión
-la gran deflación 
-el fin del patron oro
-la confiscación y 
-nacionalización del oro
-crisis del petroleo
-subas y bajas de intereses
-contracciones y expansiones
+la primera guerra
 el pacto de Versalles
 la deuda circulante
 entre Usa, Alemania
@@ -33,4 +26,13 @@ hiper alemana y
 como consecuencia la
 segunda guerra mundial
 el plan Marshall
-fin del patron oro
+la gran depresión
+la gran deflación 
+el fin del patron oro
+la confiscación y 
+nacionalización del oro
+crisis del petroleo
+subas y bajas de intereses
+contracciones y expansiones
+
+
