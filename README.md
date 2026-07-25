@@ -26,12 +26,13 @@ Francia y Reino Unido
 hiper alemana y
 como consecuencia la
 segunda guerra mundial
-el plan Marshall
 la gran depresión
 la gran deflación 
+la ley Smoot-Hawley
 el fin del patron oro
 la confiscación y 
 nacionalización del oro
+el plan Marshall
 crisis del petroleo
 subas y bajas de intereses
 contracciones y expansiones
