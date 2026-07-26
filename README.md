@@ -29,6 +29,7 @@ segunda guerra mundial
 la gran depresión
 la gran deflación 
 la ley Smoot-Hawley
+de los aranceles que 
 el fin del patron oro
 la confiscación y 
 nacionalización del oro
