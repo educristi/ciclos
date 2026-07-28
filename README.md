@@ -30,6 +30,7 @@ la gran depresión
 la gran deflación 
 la ley Smoot-Hawley
 de los aranceles que 
+provocó represalias
 el fin del patron oro
 la confiscación y 
 nacionalización del oro
