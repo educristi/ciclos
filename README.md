@@ -31,7 +31,8 @@ la gran deflación
 la ley Smoot-Hawley
 de los aranceles que 
 provocó represalias
-globales y 
+globales y colapso del
+comercio internacional y
 el fin del patron oro
 la confiscación y 
 nacionalización del oro
