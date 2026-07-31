@@ -33,6 +33,7 @@ de los aranceles que
 provocó represalias
 globales y colapso del
 comercio internacional y
+agravó la gran depresión
 el fin del patron oro
 la confiscación y 
 nacionalización del oro
