@@ -19,6 +19,7 @@ de Roma, de España
 ciclos y ciclos
 la primera guerra
 la creación del impuesto
+sobre la renta
 el pacto de Versalles
 la deuda circulante
 entre Usa, Alemania
