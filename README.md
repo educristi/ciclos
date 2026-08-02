@@ -17,6 +17,7 @@ perdida del valor
 de la moneda
 de Roma, de España
 ciclos y ciclos
+la colonia inglesa
 la primera guerra
 la creación del impuesto
 sobre la renta
