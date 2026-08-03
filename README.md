@@ -18,6 +18,7 @@ de la moneda
 de Roma, de España
 ciclos y ciclos
 la colonia inglesa
+y el imperio
 la primera guerra
 la creación del impuesto
 sobre la renta
