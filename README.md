@@ -18,7 +18,8 @@ de la moneda
 de Roma, de España
 ciclos y ciclos
 la colonia inglesa
-y el imperio
+y el imperio industrial
+sin competencia hasta
 la primera guerra
 la creación del impuesto
 sobre la renta
