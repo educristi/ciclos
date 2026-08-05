@@ -20,6 +20,7 @@ ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
 sin competencia hasta
+el surgimiento de
 la primera guerra
 la creación del impuesto
 sobre la renta
