@@ -22,6 +22,7 @@ y el imperio industrial
 sin competencia hasta
 el surgimiento de
 del imperio alemán y 
+su desarrollo industrial
 la primera guerra
 la creación del impuesto
 sobre la renta
