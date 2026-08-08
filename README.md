@@ -23,6 +23,7 @@ sin competencia hasta
 el surgimiento de
 del imperio alemán y 
 su desarrollo industrial
+lo que fue parte
 la primera guerra
 la creación del impuesto
 sobre la renta
