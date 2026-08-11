@@ -24,6 +24,7 @@ el surgimiento de
 del imperio alemán y 
 su desarrollo industrial
 que le empezó a 
+competir a la potencia
 lo que fue parte
 la primera guerra
 la creación del impuesto
