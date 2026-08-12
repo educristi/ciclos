@@ -49,7 +49,8 @@ la confiscación y
 nacionalización del oro
 el plan Marshall
 crisis del petroleo
-subas y bajas de intereses
-contracciones y expansiones
+subas y bajas de 
+intereses, contracciones
+y expansiones
 
 
