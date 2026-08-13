@@ -19,6 +19,7 @@ de Roma, de España
 ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
+entre toda la colonia
 sin competencia hasta
 el surgimiento de
 del imperio alemán y 
