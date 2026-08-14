@@ -20,6 +20,7 @@ ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
 entre toda la colonia
+haciendo un circulo
 sin competencia hasta
 el surgimiento de
 del imperio alemán y 
