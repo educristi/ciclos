@@ -33,6 +33,7 @@ lo que fue parte
 la primera guerra
 la creación del impuesto
 sobre la renta
+de la reserva federal
 el pacto de Versalles
 la deuda circulante
 entre Usa, Alemania
