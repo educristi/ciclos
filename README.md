@@ -39,7 +39,8 @@ la deuda circulante
 entre Usa, Alemania
 Francia y Reino Unido
 hiper alemana y
-como consecuencia la
+como consecuencia
+de esto la
 segunda guerra mundial
 la gran depresión
 la gran deflación 
