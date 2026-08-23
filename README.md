@@ -28,7 +28,8 @@ su desarrollo industrial
 que le empezó a 
 competir a la potencia
 en la conquista de
-los mercados internacionales
+los mercados
+internacionales
 rompiendo ese circulo
 virtuoso colonial
 lo que fue parte
