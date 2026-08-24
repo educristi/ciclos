@@ -15,7 +15,9 @@ florencia, de
 amsterdam, de la
 perdida del valor
 de la moneda
-de Roma, de España
+de Roma, 
+de la plata de
+América y lo España
 ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
