@@ -17,7 +17,8 @@ perdida del valor
 de la moneda
 de Roma, 
 de la plata de
-América y lo España
+América y la devaluación
+de la moneda de España
 ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
