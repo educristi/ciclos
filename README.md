@@ -19,6 +19,7 @@ de Roma,
 de la plata de
 América y la devaluación
 de la moneda de España
+con la sobreoferta
 ciclos y ciclos
 la colonia inglesa
 y el imperio industrial
