@@ -16,8 +16,9 @@ amsterdam, de la
 perdida del valor
 de la moneda
 de Roma, 
-de la plata de
-América y la devaluación
+del descubrimiento de
+la plata en
+América y  la devaluación
 de la moneda de España
 con la sobreoferta
 ciclos y ciclos
