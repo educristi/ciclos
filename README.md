@@ -18,7 +18,8 @@ de la moneda
 de Roma, 
 del descubrimiento de
 la plata en
-América y  la devaluación
+América y la superproducción
+la devaluación
 de la moneda de España
 con la sobreoferta
 ciclos y ciclos
