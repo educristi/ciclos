@@ -18,7 +18,8 @@ de la moneda
 de Roma, 
 del descubrimiento de
 la plata en
-América y la superproducción
+América y la 
+superproducción
 de la plata
 la devaluación
 de la moneda de España
