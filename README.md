@@ -34,7 +34,8 @@ el surgimiento de
 del imperio alemán y 
 su desarrollo industrial
 que le empezó a 
-competir a la potencia
+competir a la 
+potencia
 en la conquista de
 los mercados
 internacionales
