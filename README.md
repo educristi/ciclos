@@ -26,7 +26,8 @@ de la moneda de España
 con la sobreoferta
 ciclos y ciclos
 la colonia inglesa
-y el imperio industrial
+y el imperio
+industrial
 entre toda la colonia
 haciendo un circulo
 sin competencia hasta
