@@ -24,6 +24,7 @@ de la plata
 la devaluación
 de la moneda de España
 con la sobreoferta
+que esto generó
 ciclos y ciclos
 la colonia inglesa
 y el imperio
