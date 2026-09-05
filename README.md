@@ -34,7 +34,8 @@ haciendo un circulo
 sin competencia hasta
 el surgimiento de
 del imperio alemán y 
-su desarrollo industrial
+su desarrollo 
+industrial
 que le empezó a 
 competir a la 
 potencia
