@@ -22,7 +22,8 @@ América y la
 superproducción
 de la plata
 la devaluación
-de la moneda de España
+de la moneda de 
+España
 con la sobreoferta
 que esto generó
 ciclos y ciclos
