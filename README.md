@@ -46,7 +46,8 @@ los mercados
 internacionales
 rompiendo ese circulo
 virtuoso colonial
-lo que fue parte
+lo que formó
+la chispa para
 la primera guerra
 la creación del
 impuesto
