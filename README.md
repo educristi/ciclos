@@ -55,7 +55,8 @@ sobre la renta
 de la reserva federal
 el pacto de Versalles
 la deuda circulante
-entre Usa, Alemania
+entre Usa,
+Alemania
 Francia y Reino Unido
 hiper alemana y
 como consecuencia
