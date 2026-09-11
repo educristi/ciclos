@@ -34,7 +34,8 @@ entre toda la
 colonia
 haciendo un 
 circulo
-sin competencia hasta
+sin competencia
+hasta
 el surgimiento de
 del imperio alemán y 
 su desarrollo 
