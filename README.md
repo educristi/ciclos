@@ -64,7 +64,8 @@ hiper alemana y
 como consecuencia
 de esto la
 llegada del
-segunda guerra mundial
+segunda guerra
+mundial
 la gran depresión
 la gran deflación 
 la ley Smoot-Hawley
