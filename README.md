@@ -46,7 +46,8 @@ potencia
 en la conquista de
 los mercados
 internacionales
-rompiendo ese circulo
+rompiendo ese 
+circulo
 virtuoso colonial
 lo que formó
 la chispa para
