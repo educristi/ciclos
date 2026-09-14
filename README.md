@@ -37,7 +37,8 @@ circulo
 sin competencia
 hasta
 el surgimiento de
-del imperio alemán y 
+del imperio 
+prusiano-alemán y 
 su desarrollo 
 industrial
 que le empezó a 
