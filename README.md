@@ -73,7 +73,8 @@ la gran deflación
 la ley Smoot-Hawley
 de los aranceles que 
 provocó represalias
-globales y colapso del
+globales y 
+colapso del
 comercio internacional y
 agravó la gran 
 depresión yel fin
