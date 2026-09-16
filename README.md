@@ -61,7 +61,8 @@ el pacto de Versalles
 la deuda circulante
 entre Usa,
 Alemania
-Francia y Reino Unido
+Francia y
+Reino Unido
 hiper alemana y
 como consecuencia
 de esto la
