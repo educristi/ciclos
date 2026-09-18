@@ -58,7 +58,8 @@ impuesto
 sobre la renta
 de la reserva
 federal
-el pacto de Versalles
+el pacto de
+Versalles
 la deuda circulante
 entre Usa,
 Alemania
