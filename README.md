@@ -60,7 +60,8 @@ de la reserva
 federal
 el pacto de
 Versalles
-la deuda circulante
+la deuda
+circulante
 entre Usa,
 Alemania
 Francia y
