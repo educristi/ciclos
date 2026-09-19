@@ -16,8 +16,8 @@ amsterdam, de la
 perdida del valor
 de la moneda
 de Roma, 
-del descubrimiento de
-la plata en
+del descubrimiento 
+de la plata en
 América y la 
 superproducción
 de la plata
