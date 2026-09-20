@@ -84,7 +84,8 @@ agravó la gran
 depresión yel fin
 del patron oro
 la confiscación y 
-nacionalización del oro
+nacionalización
+del oro
 el plan Marshall
 crisis del petroleo
 subas y bajas de 
