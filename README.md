@@ -89,7 +89,8 @@ del oro
 el plan Marshall
 crisis del petroleo
 subas y bajas de 
-intereses, contracciones
+intereses, 
+contracciones
 y expansiones
 
 
